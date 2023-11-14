@@ -1,0 +1,1 @@
+# qanovember2023-SylwiaNowalska-Gw-d-
